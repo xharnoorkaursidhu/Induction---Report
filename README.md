@@ -22,3 +22,15 @@ At the end we get to know about
 IMPORTANT INFO ABOUT FOOD HE GIVE:-
 1. Food is vital for physical and mental health 
 2.balanced diet prevent diseases 
+3 skipping meals can lead to cravings and overeating later
+2Pm to 3Pm
+Buddy4study team guided students on scholarship opportunities for 1st year
+3.30 we leave the college 
+
+
+#3Day#
+9 AM -11AM Expert Lecture by Dr.Jaswinder Singh (Incharge -APT)-AUDITORIUM
+DR.Jaswinder singh(renowned for jaswinS lab on wheels) brought Physics and Maths to life through fun,simplified experiments and demonstrations.
+11AM-1PM
+Expert lecture by Dr.Priya Darshni Madam on "Universal Human Values"-AUDITORIUM
+DR.Priya Darshni continued with "Universal human Values -1",enriching young minds with clarity and purpose 

@@ -33,4 +33,5 @@ Buddy4study team guided students on scholarship opportunities for 1st year
 DR.Jaswinder singh(renowned for jaswinS lab on wheels) brought Physics and Maths to life through fun,simplified experiments and demonstrations.
 11AM-1PM
 Expert lecture by Dr.Priya Darshni Madam on "Universal Human Values"-AUDITORIUM
-DR.Priya Darshni continued with "Universal human Values -1",enriching young minds with clarity and purpose 
+DR.Priya Darshni continued with "Universal human Values -1",enriching young minds with clarity and purpose.( tells how happiness come to life)Chief guest :S.Gurcharan Singh Grewal,Secretary -SGPC encouraged students with his motivating words.Interactive discussion followed, where students reflected on their English and maths proficiency test results from day 2
+2 PM we leave the college 

@@ -40,6 +40,16 @@ DR.Priya Darshni continued with "Universal human Values -1",enriching young mind
 
 #Day 4#
 9:30 to 10:30 P2P lecture by our seniors they give us the brief of C++language. we understood well in less time also because of their nice explanation 
+
+
+
 10:30 to 11:30 BEEE lecture given by respected balwinder singh they tell us about basics of electric and electronic engineering.And also take our introduction of each and every present in class 
+
+
 11:30 to 12:30 Break
-12:30 to 2:30
+
+
+
+
+12:30 to 2:30 we move to Auditorium 
+we attended the expert lecture by Dr.Priya Darshni on "universal human values-2".she explain about how the one can remain happy in his/her life,also tells about the basic requirements of human being.2:30 to 3:30 we attended the session by causmic club we get to know about it in deep that it is hardworking club among other clubs and more popular in college as well.

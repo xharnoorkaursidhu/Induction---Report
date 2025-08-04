@@ -35,3 +35,11 @@ DR.Jaswinder singh(renowned for jaswinS lab on wheels) brought Physics and Maths
 Expert lecture by Dr.Priya Darshni Madam on "Universal Human Values"-AUDITORIUM
 DR.Priya Darshni continued with "Universal human Values -1",enriching young minds with clarity and purpose.( tells how happiness come to life)Chief guest :S.Gurcharan Singh Grewal,Secretary -SGPC encouraged students with his motivating words.Interactive discussion followed, where students reflected on their English and maths proficiency test results from day 2
 2 PM we leave the college 
+
+
+
+#Day 4#
+9:30 to 10:30 P2P lecture by our seniors they give us the brief of C++language. we understood well in less time also because of their nice explanation 
+10:30 to 11:30 BEEE lecture given by respected balwinder singh they tell us about basics of electric and electronic engineering.And also take our introduction of each and every present in class 
+11:30 to 12:30 Break
+12:30 to 2:30

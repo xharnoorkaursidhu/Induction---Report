@@ -1,5 +1,6 @@
 # Induction---Report
 #Day 1#
+
 8 30 to 9.30 -(shaved kiratan) In college Gurdwara sahib
 9.30 to 10-(Tea and snacks)In college Auditorium 
 In Student induction program we meet are honourable chief guest:-
@@ -15,6 +16,7 @@ At the end we get to know about
 
 
 #Day2#
+
 9.30 to 10.30 -English proficiency test for all students 
 10.30 to 11.30 -Math proficiency test for all students
 11.30 to 1pm - Break
@@ -28,7 +30,8 @@ Buddy4study team guided students on scholarship opportunities for 1st year
 3.30 we leave the college 
 
 
-#3Day#
+#Day3#
+
 9 AM -11AM Expert Lecture by Dr.Jaswinder Singh (Incharge -APT)-AUDITORIUM
 DR.Jaswinder singh(renowned for jaswinS lab on wheels) brought Physics and Maths to life through fun,simplified experiments and demonstrations.
 11AM-1PM
@@ -39,6 +42,7 @@ DR.Priya Darshni continued with "Universal human Values -1",enriching young mind
 
 
 #Day 4#
+
 9:30 to 10:30 P2P lecture by our seniors they give us the brief of C++language. we understood well in less time also because of their nice explanation 
 
 

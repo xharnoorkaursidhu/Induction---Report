@@ -44,16 +44,17 @@ DR.Priya Darshni continued with "Universal human Values -1",enriching young mind
 #Day 4#
 
 9:30 to 10:30 P2P lecture by our seniors they give us the brief of C++language. we understood well in less time also because of their nice explanation 
-
-
-
 10:30 to 11:30 BEEE lecture given by respected balwinder singh they tell us about basics of electric and electronic engineering.And also take our introduction of each and every present in class 
 
-
 11:30 to 12:30 Break
-
-
-
-
 12:30 to 2:30 we move to Auditorium 
 we attended the expert lecture by Dr.Priya Darshni on "universal human values-2".she explain about how the one can remain happy in his/her life,also tells about the basic requirements of human being.2:30 to 3:30 we attended the session by causmic club we get to know about it in deep that it is hardworking club among other clubs and more popular in college as well.
+
+
+#Day 5# 
+
+
+9:30 to10:30 chemistry lecture by professor "Mandeep kaur".she tells about the basics of chemistry,like what is chem ,where chemistry is used and also tells about the importance of chemistry in engineering .
+10:30 to 11:30 it was English lecture by professor "Nisha".she tells that English is international language which is important in today's time. so that one can communicate easily. further she tells that they will study new things in English which they hadn't study yet.
+11:30 to 12:30 it was math lecture by professor " Dr Gagandeep kaur".she explains what is math and how to do it and why it is necessary in engineering also.beside this she gives lecture on moral values and truth of life. 
+12:30 we leave the college. 

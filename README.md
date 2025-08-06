@@ -62,6 +62,10 @@ we attended the expert lecture by Dr.Priya Darshni on "universal human values-2"
 
 
 #Day 6#
+
+
+
+
 9:30-11:30 -id card formation (outside TCC seminar hall)for CSE-C students.
 11:30-12:30 Break
 1:30 -2:30-Lecture by (Dr.Arvind dhingra)

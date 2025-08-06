@@ -58,3 +58,14 @@ we attended the expert lecture by Dr.Priya Darshni on "universal human values-2"
 10:30 to 11:30 it was English lecture by professor "Nisha".she tells that English is international language which is important in today's time. so that one can communicate easily. further she tells that they will study new things in English which they hadn't study yet.
 11:30 to 12:30 it was math lecture by professor " Dr Gagandeep kaur".she explains what is math and how to do it and why it is necessary in engineering also.beside this she gives lecture on moral values and truth of life. 
 12:30 we leave the college. 
+
+
+
+#Day 6#
+9:30-11:30 -id card formation (outside TCC seminar hall)for CSE-C students.
+11:30-12:30 Break
+1:30 -2:30-Lecture by (Dr.Arvind dhingra)
+director step and incharge TAC.they tells about the reality of GNE college as compared to other colleges and universities. they tell us that there is no wrong methods used in this college everything is fair ,admission is given on the basis of merit and they also tell about their journey and how they came in GNE .he is trustee of collage.
+2:30-3:30 -expert lecture by (Mr Javier singh sekhon).they tell about their club and its importance in future ,they tell about various activitiestin their club.their club is hardworking club so the one who wants to do tympass he/she shouldn't join this club .they also tells about sawana what it is how it's helpful.
+3:30 to 4 -expert lecture by Dr lakhvir singh Khanna,they tells about how the person can become attentive, he/she should clap.then makes everyone to clap 1 time 2 time 3 time...
+4:15 we leave the college 

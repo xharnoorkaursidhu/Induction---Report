@@ -1,3 +1,4 @@
+
 # Induction---Report
 #Day 1#
 
@@ -73,3 +74,14 @@ director step and incharge TAC.they tells about the reality of GNE college as co
 2:30-3:30 -expert lecture by (Mr Javier singh sekhon).they tell about their club and its importance in future ,they tell about various activitiestin their club.their club is hardworking club so the one who wants to do tympass he/she shouldn't join this club .they also tells about sawana what it is how it's helpful.
 3:30 to 4 -expert lecture by Dr lakhvir singh Khanna,they tells about how the person can become attentive, he/she should clap.then makes everyone to clap 1 time 2 time 3 time...
 4:15 we leave the college 
+
+
+
+#Day7#
+9:30 to 10:30- Lecture by Dr. amit kamra
+(Incharge DMC)in Auditorium .He told about digital marketing what is it.how it help us in our life.it is not a subject only the interest of student in creative writing and design ,graphic and visual contact,email campaigns ,social media content and many more.it is enjoyable for students can make carrier in it.they show us social media content was really wonderful .
+10:30 to 11:30- Lecture by Dr parminder singh (dean student welfare )in Auditorium .
+11:30 to 12:30- Lecture by Dr Randir singh on 'conduct of examination'in Auditorium .he explain about how examination are taken in semester,how much student should score Marks and he/she can see Marks in gndec website .they can pay their fees in it.they can see their exam schedule in it.we get roll nose and we are free to use wifi provided by them
+1:30-2:30 maths lecture by professor rajbir kaur .she taken intro of each and every student present in class.
+2:30-3:30- BEEE lecture by professor balwinder singh.he had also taken intro.
+3:45 we leave the college...
